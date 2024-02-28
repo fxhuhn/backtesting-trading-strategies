@@ -1,0 +1,1 @@
+# Sammlung von verschiedenen Trading Ideen
